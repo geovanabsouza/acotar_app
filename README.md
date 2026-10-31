@@ -1,1 +1,0 @@
-# acotar_app
